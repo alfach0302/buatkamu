@@ -1,0 +1,2 @@
+# buatkamu
+buat kamu ajah
